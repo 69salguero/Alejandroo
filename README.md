@@ -18,4 +18,4 @@ He fet l'ESO a l'institut Les Vinyes a Singuerlin. Aqui es pot veure la seva pà
 
 [Les Vinyes](https://www.ieslesvinyes.org/)
 
-També parlo el castellà de forma *excel·lent",el català molt bé encara que l'anglès em costa ja més.
+Parlo el **castellà** de forma *perfecta* i **el català** *molt bé* encara que **l'anglès** em costa ja més, ja que no el parlo gairabé mai i soc molt *patós*
