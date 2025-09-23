@@ -19,3 +19,7 @@ He fet l'ESO a l'institut Les Vinyes a Singuerlin. Aqui es pot veure la seva pà
 [Les Vinyes](https://www.ieslesvinyes.org/)
 
 Parlo el **castellà** de forma *perfecta* i **el català** *molt bé* encara que **l'anglès** em costa ja més, ja que no el parlo gairabé mai i soc molt *patós*
+
+### 5.Motiu d'elecció del cicle
+He escogit aquest cicle, perquè sempre m'ha atret la tecnologia i volia aprendre com funcionen els ordinadors i les aplicacions. M'agrada resoldre problemes i la informàtica em permet fer-ho de manera creativa.Gaudeixo aprenent coses noves, i a sobre aquest sector evoluciona diariàment.
+
