@@ -14,6 +14,6 @@ Soc un esudiant molt apassionat per aprendre coses sobre la informàtica i els v
 - Gimnàs
 - ....
 ### 4. Educació
-He fet l'ESO a l'institut Les Vinyes a Singuerlin. Aqui es pot veure una imatge de com és l'institut per fora. 
+He fet l'ESO a l'institut Les Vinyes a Singuerlin. Aqui es pot veure la seva pàgina web per si algú li interessa.
 
-[Les Vinyes](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSm1Z1kRdRWBlD-WeMS0eQVOiajw2ikS6TVMw&s)
+[Les Vinyes](https://www.ieslesvinyes.org/)
