@@ -26,5 +26,9 @@ He escogit aquest cicle, perquè sempre m'ha atret la tecnologia i volia aprendr
 ### 6.Xarxes social
 Aqui teniu enllaços dels meus perfils en diferents xarxes socials:
 
+- **GitHub**: [69salguero](https://github.com/69salguero)
+
+- **Instagram**: [69_.salguero](https://www.instagram.com/69_.salguero/)
+
 
 
