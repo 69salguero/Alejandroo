@@ -17,3 +17,5 @@ Soc un esudiant molt apassionat per aprendre coses sobre la informàtica i els v
 He fet l'ESO a l'institut Les Vinyes a Singuerlin. Aqui es pot veure la seva pàgina web per si algú li interessa.
 
 [Les Vinyes](https://www.ieslesvinyes.org/)
+
+També parlo el castellà de forma *excel·lent",el català molt bé encara que l'anglès em costa ja més.
