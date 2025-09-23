@@ -23,3 +23,8 @@ Parlo el **castellà** de forma *perfecta* i **el català** *molt bé* encara qu
 ### 5.Motiu d'elecció del cicle
 He escogit aquest cicle, perquè sempre m'ha atret la tecnologia i volia aprendre com funcionen els ordinadors i les aplicacions. M'agrada resoldre problemes i la informàtica em permet fer-ho de manera creativa.Gaudeixo aprenent coses noves, i a sobre aquest sector evoluciona diariàment.
 
+### 6.Xarxes social
+Aqui teniu enllaços dels meus perfils en diferents xarxes socials:
+
+
+
