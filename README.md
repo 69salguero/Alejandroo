@@ -29,8 +29,12 @@ Aqui teniu enllaços dels meus perfils en diferents xarxes socials:
 - **GitHub**: [69salguero](https://github.com/69salguero)
 
 - **Instagram**: [69_.salguero](https://www.instagram.com/69_.salguero/)
+
+![IMATGE](https://github.com/69salguero/Alejandroo/blob/main/IMG_2899.jpeg.jpg)
+
   
 ![IMATGE](https://github.com/69salguero/Alejandroo/blob/main/ORDENADOR.jpg)
+
 
 
 
