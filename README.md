@@ -30,7 +30,8 @@ Aqui teniu enllaços dels meus perfils en diferents xarxes socials:
 
 - **Instagram**: [69_.salguero](https://www.instagram.com/69_.salguero/)
   
-![]([https://github.com/user-attachments/assets/bcceba9c-734c-49f9-871f-78353422cfbf]
+![IMATGE](https://github.com/user-attachments/assets/04b92f71-56c9-4a86-9e8c-fb038535d33c)
+
 
 [Extra](https://github.com/69salguero/Alejandroo/new/main)
 
