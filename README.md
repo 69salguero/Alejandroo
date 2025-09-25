@@ -30,5 +30,3 @@ Aqui teniu enllaços dels meus perfils en diferents xarxes socials:
 
 - **Instagram**: [69_.salguero](https://www.instagram.com/69_.salguero/)
 
-
-
